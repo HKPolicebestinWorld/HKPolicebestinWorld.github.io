@@ -11,7 +11,7 @@ Help store 612 related posts / files for further investigation.
 
 ## 大整合post(必睇!)
 
-[621總整合post](https://lih.kg/cRbdGS)
+[621總整合post](https://lih.kg/1245051)
 
 ## 個網點用?
 
